@@ -30,7 +30,9 @@ Started because planning university modules was annoying, now it's better.
 ### Other things I like
 
 📷 Photography · 📚 Reading · 🧗 Climbing · 🏃 Parkour · 🏎️ Cars
+
 I used to spend a lot more time on yo-yoing, anime, TV series, go-karting, sim racing and competitive gaming.
+
 These days, I'm mostly looking for the next project to get into.
 
 <sub>Started on a Pentium. Still waiting for the upgrade to finish.</sub>
